@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... https://x.com/AmGroot_x
 - 😄 Pronouns: 
-- ⚡ Fun fact: е55
+- ⚡ Fun fact: е5
 I am Groot мм
 <!---.
 IamGroot3/IamGroot3 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
