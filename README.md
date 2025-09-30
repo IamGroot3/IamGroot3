@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...Btc
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... https://x.com/AmGroot_x
-- 😄 Pronouns: 
+- 😄 Pronouns
 - ⚡ Fun fact
 I am Groot 
 <!---.
